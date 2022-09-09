@@ -1,6 +1,6 @@
 # Viktoriia Kovaleva
->*e-mail: laurentis228@gmail.com*
->*tel: +7(918)856-96-90*
+> *e-mail: laurentis228@gmail.com*
+> *tel: +7(918)856-96-90*
 ### Sumy State University | Master's degree in English and German Philology ###
 ## Employment ##
 ### September 2016 - March 2017 | MoYO Company | Client Manager ###
